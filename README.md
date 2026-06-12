@@ -1,2 +1,2 @@
 Jogo: https://alvarogm2608.github.io/extensao/
-Video: https://youtu.be/WtdrJ2ZG1yU?is=89mMMP7yt4ka89qM
+Video: https://www.youtube.com/watch?v=WtdrJ2ZG1yU
